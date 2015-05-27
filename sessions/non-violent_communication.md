@@ -2,9 +2,9 @@
 
 ##Communication or conflicts
 
-Don't jump straight to conclusions, judgment.. everyone is trying to fulfill their underlying needs / feelings.
+Don't jump straight to conclusions, judgement.. everyone is trying to fulfill their underlying needs / feelings.
 
-The takeaway is to look at the conflicts during communications in different ways and try to handle them in proper way. win win.
+Instead, you have to look at the conflicts during communications in different ways and try to handle them in proper way. win win.
 
 ## Conflicts over emails:
 
